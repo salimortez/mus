@@ -1,2 +1,2 @@
 # mus
-#do you onow mus meaning?
+#do you know whats the meaning of mus?
